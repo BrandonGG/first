@@ -1,1 +1,1 @@
-There's no content. I just wanted a profile README.
+Yeah. No content, just wanted a README.
